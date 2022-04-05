@@ -1,1 +1,1 @@
-# aplikasi_kasir
+readme na ganti dong
